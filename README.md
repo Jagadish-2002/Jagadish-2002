@@ -80,9 +80,9 @@ To start my career as a Data Analyst in a growth-oriented organization where I c
 
 ## 🤝 Connect With Me
 
-- 💼 LinkedIn: [My LinkedIn Profile](YOUR_LINKEDIN_URL)
+- 💼 LinkedIn: [My LinkedIn Profile](www.linkedin.com/in/jagadish-panigrahy-23b3183ab)
 - 💻 GitHub: [My GitHub Profile](YOUR_GITHUB_URL)
-- 📧 Email: YOUR_EMAIL_ADDRESS
+- 📧 Email: jagadishpanigrahy81@gmail.
 
 ---
 
