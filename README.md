@@ -82,7 +82,7 @@ To start my career as a Data Analyst in a growth-oriented organization where I c
 
 - 💼 LinkedIn: [Jagadish Panigrahy](https://www.linkedin.com/in/jagadish-panigrahy-23b3183ab/)
 - 📧 Email: [jagadishpanigrahy81@gmail.com](mailto:jagadishpanigrahy81@gmail.com)
-
+- 📱 Mobile: 8117986670
 ---
 
 ### ⭐ Thank you for visiting my profile!
